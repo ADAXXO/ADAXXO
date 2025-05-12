@@ -1,4 +1,4 @@
-- 👋 Ciao Sono una tech recruiter ,cerco i migliori talenti in ambito ICT 
+- 👋 CIAO SONO UNA TECH RECRUITER E CERCO I TALENTI ICT PERFETTI PER LE NOSTRE SFIDE 
 
 - 👀 Chi cerco? 💡 
 
